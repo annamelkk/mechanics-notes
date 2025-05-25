@@ -1,0 +1,2 @@
+[7 Electric Field (rl.odessa.ua)](http://rl.odessa.ua/media/_For_Liceistu/Physics/ForDPA/Test_ElStat.pdf)
+[8 The Laws of Constant Current (rl.odessa.ua)](http://rl.odessa.ua/media/_For_Liceistu/Physics/ForDPA/Test_DC.pdf)

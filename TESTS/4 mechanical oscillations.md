@@ -1,0 +1,1 @@
+[11 Mechanical Oscillations (rl.odessa.ua)](http://rl.odessa.ua/media/_For_Liceistu/Physics/ForDPA/Test_DC.pdf)
